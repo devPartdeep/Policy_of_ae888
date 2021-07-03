@@ -1,4 +1,4 @@
-Privacy Policy of ae888
+Privacy Policy of AE888
 
 
 Privacy Policy Last Modified on Jul 3, 2021
